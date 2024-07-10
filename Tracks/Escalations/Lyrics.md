@@ -4,7 +4,7 @@ Created: July 3, 2024 12:43 AM
 Instrumental Link: https://www.youtube.com/watch?v=Yi8drzxWAg4
 Instrumental Name: Vast Aire - Adversity Strikes (Instrumental)
 
-Without trace of sadness
+Without trace of sadness  
 Irradiate whole world with the badness
 This ain't madness, it's dopeness
 That hits stronger than heron in veins
