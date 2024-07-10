@@ -14,6 +14,5 @@ Pass me paper, borrow
 Me a way to make feet move, shuffle
 As if they could step above each other like a snail paced shuttle
 I shit on every one of y’all
-
 Irrespective of disagreements or arguments, hoes
 Respect it's my game you play and to me y'all sound corny as rows

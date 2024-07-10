@@ -6,5 +6,4 @@ Instrumental Name: Jay Electronica - So What You Saying Instrumental
 
 On a mission fishing for schematics for fission to power a new religion
 I'm not even kidding, for too many life is a bitch and
-
 No end in sight for the bitching

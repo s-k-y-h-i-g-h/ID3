@@ -8,7 +8,6 @@ Crush writers blocks like I work demolition
 I've got inspiration beyond that of religion
 Touch something tough when photons bounce off my skin
 Off mic off me comes all of my sin and strikes domes like Tyson
-
 Recoil at the action, did I ever have traction?
 Kill wackness like Ricin
 Food's only thing that I'm biting, more than one meaning yet only one writing

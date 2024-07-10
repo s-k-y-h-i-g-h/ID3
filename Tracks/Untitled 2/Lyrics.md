@@ -9,7 +9,6 @@ hope I dont hit a dirty while jacking thighs through my pants
 Im ahead of them all and I intended offense
 use my vocals to fence whoever aren’t friends
 making a comeback but not to meet ends 
-
 government sponsored cos my psyche is bent like my taste of romance
 always in militant stance after terrorist plans
 my crew is solid like hash on weekends but on workdays its diamond and spans time from the start to the ends
