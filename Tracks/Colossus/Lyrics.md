@@ -13,8 +13,8 @@ Questions? Only statements, never patience
 Now or never, unlicensed to have patients  
 Keeping clever, reading papers bout the weather  
 Butterlies, tornados, eyes of riders  
-Lies in pronunciation of the whether  
-Never pronounce --, no matter situation or the weather  
+Lies in pronunciation of whether  
+Never pronounce --, no matter situation or weather  
 It’s critical, hear me, I say this, y’all  
 This period define the rest of ‘em and in peace will rest none them all    
 True for all before but true, no mo’  
@@ -27,13 +27,16 @@ My E not spent, my will just will not end
 Feel for whoever reads my will if I get hell or heaven sent  
 It goes back from fo’  
 Paddle back the flow  
-Rhythm saddle from the back and for  
+Rhythm saddle from the back and fo'  
+Ass I paddle back and fo'
 Truth I vessel forward row and tow  
 Every one of them I’m providing sanctuary fo’  
-Not too many, many sight have no and deaf as feet shuffle and arms pebbles throw  
-But unaware of what they lack and where stones fall  
+Not too many, many sight have no and deaf as feet shuffle 
+Arms pebbles throw  
+But unaware of what they lack, where their stones fall  
 Even if fate certain that they’ll fall  
 Those who my assistance will take no  
 I leave to ferry to the floor and roll  
 Fires only fight when asked to, ball  
 Only bounce when elastic it’s ma-ter-ial  
+And therefor not all balls bounce but they all roll
