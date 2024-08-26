@@ -5,7 +5,7 @@ Instrumental Link: https://www.youtube.com/watch?v=CMOZ9mxiD2o
 Instrumental Name: Company Flow - 8 Steps To Perfection Instrumental
      
 Score high in measurements  
-Religion is all past tense  
+Religion past tense  
 Win cos they pack light, my punches is dense  
 True in every sense cept my mind is fenced  
 With skulls I still fence  
