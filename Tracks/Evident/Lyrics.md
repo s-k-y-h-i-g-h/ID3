@@ -17,4 +17,3 @@ Santa's for kids
 Which to me all of you is  
 Spectators questioning if I meant them in my sentences  
 Or if I’m talking shit and they’re witnesses  
-In parenthesis, denial that I'll out last while I take the piss  
