@@ -10,7 +10,7 @@ Win cos they pack light, my punches is dense
 True in every sense cept my mind is fenced  
 With skulls I still fence  
 I get stabbed in romance  
-I pay no elements  
+Pay no elements  
 Go against me you're mince  
 I intended offence  
 Santa's for kids  
