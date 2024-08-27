@@ -4,7 +4,7 @@ Created: July 3, 2024 12:44 AM
 Instrumental Link: https://www.youtube.com/watch?v=zSO4mD7wJkQ
 Instrumental Name: MF DOOM/Viktor Vaughn - Let Me Watch/ Can I Watch? (Instrumental)
   
-Grow hot, throw self out cold spot that I'm in, retaliating   
+Grow hot, throw self out cold spot I'm in, retaliating   
 I'm sin stained so never back in heaven I'm in  
 I mean to bring it down, the whole of heaven, I mean
 Refined, lean but ain't taking codeine  
@@ -12,9 +12,9 @@ Defined by weight I'm pushing
 A trap, I'm vermin slicing  
 Dose odds with even measures ricin  
 Opps suck like Dyson, the shame of my son  
-Every last one, drown them, red rum till eyes dim    
-Mind state of ronin, either asleep or roaming  
-Honing in on building a Rome on land plan on purchasing  
+Every last one, drown them, red rum till eyes dim some  
+Mind state of ronin, either asleep or roaming, freeze! run!  
+Honing in on building a Rome on land I plan on purchasing   
 With blood, silver, gold, green  
 Deep in the mud nothing's green, I'm brighter than bling  
 Strong like a diamond is to a tin  
