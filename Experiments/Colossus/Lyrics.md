@@ -39,4 +39,4 @@ Those who my assistance will take no
 I leave to ferry to the floor and roll  
 Fires only fight when asked to, ball  
 Only bounce when elastic it’s ma-ter-ial  
-And therefor not all balls bounce but they all roll
+And therefor not all balls bounce but all roll

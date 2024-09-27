@@ -5,10 +5,10 @@ Instrumental Link: https://www.youtube.com/watch?v=vdiXKy_N6iA
 Instrumental Name: Cage - Scenester (Instrumental)
   
 Tell like it is  
-Sell bits of mic to fund biz  
+Sell bits of mic to fund my biz  
 Lose voice in the process  
-Utilise forces  
-On opps cast curses  
+Utilising forces  
+On opps casting curses  
 First to thirst for the sources  
 Also reverse this  
 Worst is landing in hearses  
@@ -18,9 +18,9 @@ Is this my fate or will I lose in this versus?
 At this rate you could mistake procreation for hate  
 That's why I won't mate  
 Unless I play chess with a date  
-Then them undress hour late  
+Then undress hour late  
 Depending on their out of ten rate  
-But won’t with them replicate  
+Still won’t with them replicate  
 To save someone their fate  
 And for someone else the work to cremate  
 Morbid maybe perspective lately  
