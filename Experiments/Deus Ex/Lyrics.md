@@ -6,22 +6,18 @@ Instrumental Name: Cage - Scenester (Instrumental)
   
 Tell like it is  
 Sell bits of mic to fund my biz  
-Lose voice in the process  
+Lose voice the in process  
 Utilising forces  
 On opps casting curses  
 First to thirst for the sources  
 Also reverse this  
 Worst is landing in hearses  
 Terse is the end unless I learn enough courses  
-To side-step with life divorces  
+To side-step with life the divorces  
 Is this my fate or will I lose in this versus?  
-At this rate you could mistake procreation for hate  
-That's why I won't mate  
 Unless I play chess with a date  
-Then undress hour late  
+Then them undress hour late  
 Depending on their out of ten rate  
-Still won’t with them replicate  
+Might mate, won't replicate  
 To save someone their fate  
 And for someone else the work to cremate  
-Morbid maybe perspective lately  
-But hope I hold more than faintly  
