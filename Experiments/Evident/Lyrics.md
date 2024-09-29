@@ -11,9 +11,3 @@ True in every sense cept my mind is fenced
 With skulls I still fence  
 I get stabbed in romance  
 Pay no elements  
-Go against me you're mince  
-I intended offence  
-Santa's for kids  
-Which to me all of you is  
-Spectators questioning if I meant them in my sentences  
-Or if I’m talking shit and they’re witnesses  
