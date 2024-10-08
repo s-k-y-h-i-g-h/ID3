@@ -21,7 +21,7 @@ Land I stand on as if I was an earl
 Noble I'm called by them all  
 Smoke but not L  
 Take not a single one L  
-It's W three, stand with me or get felled like a tree  
+It's double W three, stand with me or get felled like a tree  
 All things I touch elevated  
 To the top I will escalate it  
 Till I hit top of the state  
