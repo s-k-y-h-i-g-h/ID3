@@ -5,4 +5,9 @@
 
 # Tracks to sample:
 - David Parry, London Philharmonic Orchestra - Pavane, Op. 50
-- Add bass to: RJD2 - Beyond the Beyond (instrumental) 
+- Add bass to: RJD2 - Beyond the Beyond (instrumental)
+
+I'm over dressed
+And this I stress
+I'm over stress but over stressed 
+Talk like I'm blessed
