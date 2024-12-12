@@ -7,10 +7,3 @@
 - David Parry, London Philharmonic Orchestra - Pavane, Op. 50
 - Add bass to: RJD2 - Beyond the Beyond (instrumental)
 
-I'm over dressed
-And this I stress
-I'm over stress but over stressed 
-Talk like I'm blessed
-
-I'm so street I've lived on it
-I'm so deep you'll drown, innit
