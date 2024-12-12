@@ -8,7 +8,7 @@ Instrumental Name: Atmosphere - Self Hate Bad Dub (Instrumental)
 
 - Mumble rap on this track
   
-Confusion never losing, stuck to me just like using  
+Confusion never losing, stuck to me like using  
 Buck under the weight of multiple G's of multiple keys  
 Must be many in the O-Zees like weighing me's  
 Elated, I don't need to state much cos I wear words and talk with the touch  
